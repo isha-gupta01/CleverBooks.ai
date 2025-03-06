@@ -1,2 +1,2 @@
 # CleverBooks.ai
-https://bloomer004.github.io/CleverBooks.ai/
+https://isha-gupta01.github.io/CleverBooks.ai/
